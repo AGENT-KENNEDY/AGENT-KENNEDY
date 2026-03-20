@@ -1,4 +1,4 @@
-## Hi there 👋
+## ![me core](https://i.pinimg.com/736x/e7/37/cd/e737cd8b230bf8aaa6b97bc3273311dd.jpg)
 
 <!--
 **AGENT-KENNEDY/AGENT-KENNEDY** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

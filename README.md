@@ -10,7 +10,7 @@ ___
 **HEAVY DNI : `Rae and his friends, Elliot and his friends`**
 ___
 ![](https://i.pinimg.com/736x/f3/75/3c/f3753c6832f04066949e1097ce6d7244.jpg)
-- `art from pinterest`
+- `art from pinterest, layout from bsf ashley <3`
 
 <!--
 **AGENT-KENNEDY/AGENT-KENNEDY** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

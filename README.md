@@ -1,7 +1,7 @@
 @____Leon Kennedy___ ☆     he/him      
     =ISTP-T=   ☀️   ____15 , multishipper + leon fictkin____  　
   
-  `“ You were fine knight, Don Quixote ”`
+  `“ You were a fine knight, Don Quixote ”`
 ___
 
 - ⚜️ Mainly on *`Ponytown (in RE/MCU areas or island)`*

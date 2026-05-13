@@ -4,7 +4,7 @@
   `“ You were fine knight, Don Quixote ”`
 ___
 
-- ⚜️ Mainly on *`Ponytown (in RE/HH/MCU/MHA areas or island)`*
+- ⚜️ Mainly on *`Ponytown (in RE/MCU areas or island)`*
 - or *`Discord = st4rvr7s_`*
 ___
 **HEAVY DNI : `Rae and his friends, Elliot and his friends`**

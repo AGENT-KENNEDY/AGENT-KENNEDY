@@ -1,5 +1,5 @@
 @____Leon Kennedy___ ☆     he/him      
-    =ISTP-T=   ☀️   ____15 , multishipper + leon fictkin____  　
+    =ISTP-T=   ☀️   ____16 , multishipper + leon fictkin____  　
   
   `“ You were a fine knight, Don Quixote ”`
 ___

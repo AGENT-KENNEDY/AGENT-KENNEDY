@@ -5,7 +5,7 @@
 ___
 
 - ⚜️ Mainly on *`Ponytown (in RE/MCU areas or island)`*
-- or *`Discord = all4serennedy`*
+- or *`Discord = .angelcastiel`*
 ___
 **HEAVY DNI : `Rae and his friends, Elliot and his friends`**
 ___

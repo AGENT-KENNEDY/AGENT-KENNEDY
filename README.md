@@ -1,5 +1,5 @@
 @____Leon Kennedy___ ☆     he/him      
-    =ISTP-T=   ☀️   ____16 , multishipper + leon fictive____  　
+    =ISTP-T=   ☀️   ____16 , suspected partial did + leon fictive____  　
   
   `“ You were a fine knight, Don Quixote ”`
 ___

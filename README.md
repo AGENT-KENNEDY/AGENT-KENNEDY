@@ -1,5 +1,5 @@
-@____Leon Kennedy___ ☆     he/him      
-    =ISTP-T=   ☀️   ____16 , suspected partial did + leon fictive____  　
+@____Leon Kennedy___ ☆     he/him or vamp/vamps      
+    =ISTP-T=   ☀️   ____16 bodily , suspected partial did + leon fictive____  　
   
   `“ You were a fine knight, Don Quixote ”`
 ___

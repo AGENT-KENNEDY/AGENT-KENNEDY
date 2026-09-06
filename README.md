@@ -1,3 +1,5 @@
+![](https://file.garden/alqzWtqplE9QfqIP/brown%20div%203.png)
+
 $${\color{#a67538}❛❛ㅤyouㅤwereㅤaㅤfineㅤknight,ㅤDonㅤQuixoteㅤ❜❜}$$
 
 <p align="center">
@@ -8,6 +10,7 @@ $${\color{#d9ac59}✦ㅤleonㅤkennedyㅤintrojectㅤ◞}$$
 $${\color{#a67538}︵ㅤsysㅤ.ㅤ6teenㅤbodilyㅤ✙}$$
 $${\color{#593c22}⋮ㅤshipsㅤ/ㅤyumesㅤiwcㅤ𓏼}$$
 
+![](https://file.garden/alqzWtqplE9QfqIP/brown%20div.png)
 
 <!--
 **AGENT-KENNEDY/AGENT-KENNEDY** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
